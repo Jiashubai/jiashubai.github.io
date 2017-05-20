@@ -2,14 +2,13 @@
 --
 layout: default
 ---
-
-cute Guoba's Website
+白佳澍的个人网站
 
 
 
 # [](#header-1)滑到最下面没有惊喜哟~千万不要手抖滑下去哟(｡◕ˇ∀ˇ◕）
 
-# [](#header-1)To the very best time of ours
+
 
 
 
@@ -252,20 +251,10 @@ o(°▽、°o)....+((￣﹏￣m )~
 (*^︹^*) 　( /。 ) 　　( ' – ' ) ( ^３^ )╱~~　 
 (；°○° ) ( > c < ) 
 
-# [](#header-1)Love You ,Baby~
-
-### 我们都会一直陪着你哟~
-
-![](https://pic4.zhimg.com/v2-80c87483344617cfb0ff27db63bbb4ab_400x224.jpg)
+# [](#header-1)我是不是很帅气哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈
 
 
-### 
 
-![](https://pic2.zhimg.com/v2-a6519ebd021cbd532a8bdf460be4444d_400x224.jpg)
-
-### 
-
-![](https://pic1.zhimg.com/127e90a83c471bad2d595214474b6890_xl.jpg)
 
 
 
